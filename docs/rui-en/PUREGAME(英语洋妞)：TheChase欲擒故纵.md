@@ -1,12 +1,12 @@
 # PURE GAME (英语洋妞)：The Chase 欲擒故纵
 
-現在，我會說的，是啤酒，所以，啤酒是比較有趣的，，是啤酒的，是啤酒的，，而且是更有趣的，，更有趣的，是啤酒的，，是啤酒的，，更有趣的，，所以，啤酒的，，是啤酒的，，啤酒的，是啤酒的，，。
+现在，我会说的，是啤酒，所以，啤酒是比较有趣的，，是啤酒的，是啤酒的，，而且是更有趣的，，更有趣的，是啤酒的，，是啤酒的，，更有趣的，，所以，啤酒的，，是啤酒的，，啤酒的，是啤酒的，，。
 
-</iasts Re sterian，所以，啤酒的，，是啤酒的。。。。。。，好，，乖乖的，，然間和音樂更好，然間和音樂 pretended，可以重新完成，在這個概念，遇見喜歡切斷，OO95，走遠行。
+</iasts Re sterian，所以，啤酒的，，是啤酒的。。。。。。，好，，乖乖的，，然间和音乐更好，然间和音乐 pretended，可以重新完成，在这个概念，遇见喜欢切断，OO95，走远行。
 
-自課式，是扬達把藥吃爛鹽，一定的聲音不會流出，不如大聲用來建立，即使加強軟件，統對著藥時間，這麼高 parents，設計變化，價格準備，新年黨升級，高遞，比普通，大，西方，地方，特iem，黃賭。
+自课式，是扬达把药吃烂盐，一定的声音不会流出，不如大声用来建立，即使加强软件，统对著药时间，这么高 parents，设计变化，价格准备，新年党升级，高递，比普通，大，西方，地方，特iem，黄赌。
 
-應曾經為安穌，and if we count on a lot of these girls especially in nightclubs。
+应曾经为安稣，and if we count on a lot of these girls especially in nightclubs。
 
  and they're so used to guys buying them drinks， they're so used to guys going up and complements them on their looks。
 
@@ -20,11 +20,11 @@
 
 如果再回到，那 guys， stars，ng，捞一步，aka，i，c，n， пес，U， tragedy，an，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k。
 
-k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，是如何凉一下，他們認為，是 The Kindyear 參加的，是 甚麼資金。
+k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，k，是如何凉一下，他们认为，是 The Kindyear 参加的，是 甚么资金。
 
-我是 not notice 因為我見到，能否認識，啊 就是必須提高，所以這些時好處，應該會發作 Lashiter教 ippyn，好，在我刻期中，東西回落，放心 p，攝得的，就會擺去，對啊。
+我是 not notice 因为我见到，能否认识，啊 就是必须提高，所以这些时好处，应该会发作 Lashiter教 ippyn，好，在我刻期中，东西回落，放心 p，摄得的，就会摆去，对啊。
 
-我乾脆 Private，假的，他觉得你是一 bol，想想考ında了，The only reason that you put her on such a fucking pedestal。
+我干脆 Private，假的，他觉得你是一 bol，想想考ında了，The only reason that you put her on such a fucking pedestal。
 
  is because everyone else does， her perceived value from everybody is super fucking high。
 

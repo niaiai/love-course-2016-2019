@@ -8,17 +8,17 @@
 
  shoe，虽，aty， ok，课，know，她是不知道 Rachel is not in the exacty emotional state，老闻，她是在那时候人家所园，如果她失去一个年那些，这天。
 
-，若是绿部关 within a Polish locked in a complètement negative state，她不怕念的时候，她会相信你，如果她待在这双方旁边就会觉得開心。
+，若是绿部关 within a Polish locked in a complètement negative state，她不怕念的时候，她会相信你，如果她待在这双方旁边就会觉得开心。
 
 但是为什么不有手，只有这样走出而会，因为，要不是明识到你们，特别是要去看看，如果你要四方个妹妹，然后不是别说，那么不如果你，就是把它觉得别人，不懂我，因为我想因为，另外最近今天，就有一种，有一个金子。
 
 哪样呢，那看我的，钔因为，这个，钔是，你在开它，钔见它，在钩，钩的自由，钨，钩 he，钔，钲，钕，钨，钕，钩，钨，钲，钩，钩，钩，钩，钩，钩，钩，钩，钪，钪，钪，钪，钪，钪，钪，钪，钪，钪，钪，钪。
 
-對我來說 這是 jeito，第一樣，意外的計劃，很可能是，AL Angela，沒想到，AL Angela，流行，AL Z tive，AL Z，AL Z，AL Z，AL Z，AL，AL Z，AL。
+对我来说 这是 jeito，第一样，意外的计划，很可能是，AL Angela，没想到，AL Angela，流行，AL Z tive，AL Z，AL Z，AL Z，AL Z，AL，AL Z，AL。
 
 AL Z，AL Z，AL Z，每一人都能跟我一样，OK，你不明白，所以你不认识，不认识，你不认识，从一个压力的确实的确实，OK，你只要要在确实，不认识，因为在所有的，在所有的确实上，你不认识，你不认识。
 
-你不认识，你不认识，你不认识，你不认识，你不认识，你不认识，你不认识，现在，发展的，市民，不认识，你不认识，因为现在，社会，不认识，因为，中国，国内，中国，書业，国 fun，生在，2008日，好。
+你不认识，你不认识，你不认识，你不认识，你不认识，你不认识，你不认识，现在，发展的，市民，不认识，你不认识，因为现在，社会，不认识，因为，中国，国内，中国，书业，国 fun，生在，2008日，好。
 
 你自己，这个，我们，很多仙谱，山西，这个，你 never want to look at that way，你 always want to just focus on your progress。
 

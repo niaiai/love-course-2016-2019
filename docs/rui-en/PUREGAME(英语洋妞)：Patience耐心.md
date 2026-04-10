@@ -1,8 +1,8 @@
 # PURE GAME (英语洋妞)：Patience 耐心
 
-目前最重要的是，Hirlings，在其中日表面，看到荷 dangerous，我的只有一位，倆站在这里， sistemasTh szata，以我的身體 Interσε，以限。行對，平台的，包那部分，以限。
+目前最重要的是，Hirlings，在其中日表面，看到荷 dangerous，我的只有一位，俩站在这里， sistemasTh szata，以我的身体 Interσε，以限。行对，平台的，包那部分，以限。
 
-行李，結位， cos， industian，重 getting，辛勺，其實，你，你，被v止，貙，鐵，電話，依德，例，戰而，貙， 1977， spat，帮助，分位，背引，靶，勁，靶，你漿，靶。
+行李，结位， cos， industian，重 getting，辛勺，其实，你，你，被v止，䝙，铁，电话，依德，例，战而，䝙， 1977， spat，帮助，分位，背引，靶，劲，靶，你浆，靶。
 
  She is now interested in you， because she is emotionally invested in you， she is showing emotions。
 
@@ -16,9 +16,9 @@
 
  once you notice that she is already hooked and she is into you， start qualifying。
 
- and will really soften up the closing for you，所以你要麼orkull find her，F，看過我的正式看見，你可想並lims，這是在那時候，我要查穢了。
+ and will really soften up the closing for you，所以你要么orkull find her，F，看过我的正式看见，你可想并lims，这是在那时候，我要查秽了。
 
-大家一定慢慢對我看ung，是真的聽到的，她自己甩力拍拖，她就是凤陣，她就说凑凑，说凑凑，然后它是过了，现在就是有庖，他是出了 body，之后，反对，这个你看现在，咱们 richtig，没想到。
+大家一定慢慢对我看ung，是真的听到的，她自己甩力拍拖，她就是凤阵，她就说凑凑，说凑凑，然后它是过了，现在就是有庖，他是出了 body，之后，反对，这个你看现在，咱们 richtig，没想到。
 
 这 reason，所以，把那个 Jay，刚有 public，字幕，在 этом，我觉得，张刘 éner，声�，在这，发火，张晤，让她，公子，有什么意思，讲文。
 
